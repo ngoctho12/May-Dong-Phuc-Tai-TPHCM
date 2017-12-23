@@ -4,7 +4,7 @@ Một chiếc **áo thun đồng phục** luôn là một lựa chọn an toàn 
 
 Bằng cách thay đổi chi tiết, chẳng hạn như độ dài của ống tay, màu sắc (và tất nhiên là bản in hoặc thêu mà bạn chọn tuỳ chỉnh), bạn có thể tạo ra nhiều kiểu dáng để thu hút nhiều người hơn.
  
- <img src="https://prntscr.com/hr9dz3">
+  ![Mẫu áo thun đồng phục cổ tròn](https://image.prntscr.com/image/N8eHiR6kTr636KzJSt1taw.png)
 
 ## Vòng (bo) cổ
 Các đường cổ khác nhau sẽ phù hợp với các phong cách và lứa tuổi khác nhau. Ví dụ như **áo thun đồng phục** có cổ là sự lựa chọn và lựa chọn phổ biến nhất với dân văn phòng, công sở. Cổ tim (cổ chữ V) cũng được ưa chuộng nhiều, nó cũng khá sang trọng, và quan trọng là nó có thể được mặc được bởi cả nam giới và phụ nữ.
