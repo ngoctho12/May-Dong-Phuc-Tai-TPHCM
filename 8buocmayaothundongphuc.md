@@ -1,4 +1,4 @@
-# 8 bước để thiết kế một chiếc áo thun đồng phục
+# 8 bước để may áo thun đồng phục
 
 ## 1. Xác định lý do cần thiết của việc may áo thun đồng phục 
 Dù bạn có lý do gì đi nữa để [**may áo thun đồng phục**](http://dongphuckimvang.vn/ao-thun-cong-so.html) thì nó sẽ luôn liên quan đến thương hiệu. Nếu bạn đang sử dụng áo thun cho mục đích quảng cáo, xây dựng thương hiệu là mục tiêu chính của bạn. Ngay cả khi bạn *may áo thun* với mục đích thời trang thuần túy, bạn vẫn cần phải đưa chủ đề, thương hiệu công ty vào tất cả các sản phẩm của mình. Ví dụ như để sử dụng **áo thun đồng phục** cho một sự kiện, buổi tưởng niệm thì bạn vẫn phải đảm bảo rằng trên áo thun thể hiện rõ tên công ty gắn liền với hoạt động kỉ niệm đó.
