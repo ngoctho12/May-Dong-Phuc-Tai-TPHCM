@@ -25,3 +25,4 @@ Một hỗn hợp vải ngày càng phổ biến là Tri-Blends (được làm t
 
 Thương hiệu, công ty may khác nhau thì sẽ phân biệt nhau về chất lượng và giá cả. Vì vậy tất cả phụ thuộc vào mục đích sử dụng **áo thun đồng phục** đồng phục. Chúng sẽ được sử dụng cho mục đích  nào sẽ là câu trả lời cho các khâu thiết kế, lựa chọn chất liệu vải, in thêu…Bạn chắc chắn sẽ muốn thể hiện những thiết kế tuyệt vời, logo nổi bật lên chiếc  **áo thun đồng phục** đồng phục để thương hiệu công ty bạn luôn nổi bật.
 
+Tham khảo bài viết [8 bước để may áo thun đồng phục](https://github.com/vanads/May-Dong-Phuc-Tai-TPHCM/blob/master/8buocmayaothundongphuc.md) trước khi đặt may để hiểu rõ quy trình và tiết kiệm chi phí hơn!!!
