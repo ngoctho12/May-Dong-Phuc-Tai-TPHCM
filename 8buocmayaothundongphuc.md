@@ -3,6 +3,8 @@
 ## 1. Xác định lý do cần thiết của việc may áo thun đồng phục 
 Dù bạn có lý do gì đi nữa để [**may áo thun đồng phục**](http://dongphuckimvang.vn/ao-thun-cong-so.html) thì nó sẽ luôn liên quan đến thương hiệu. Nếu bạn đang sử dụng áo thun cho mục đích quảng cáo, xây dựng thương hiệu là mục tiêu chính của bạn. Ngay cả khi bạn *may áo thun* với mục đích thời trang thuần túy, bạn vẫn cần phải đưa chủ đề, thương hiệu công ty vào tất cả các sản phẩm của mình. Ví dụ như để sử dụng **áo thun đồng phục** cho một sự kiện, buổi tưởng niệm thì bạn vẫn phải đảm bảo rằng trên áo thun thể hiện rõ tên công ty gắn liền với hoạt động kỉ niệm đó.
 
+// *LIÊN  HỆ  ĐẶT MAY ÁO THUN ĐỒNG PHỤC* **0937 166 346** //
+
 Nếu bạn chưa nghĩ tới điều đó, hãy viết ra một danh sách các chủ đề chính, phong cách và tín hiệu mà bạn muốn chiếc áo thun của mình truyền đạt. Thương hiệu của bạn vui tươi hay trang nghiêm? Mạnh mẽ hay bảo thủ? Sang trọng cao cấp hay bình dân vừa phải? Một thiết kế rõ ràng có thể trả lời tất cả những câu hỏi này trong nháy mắt, ngay khi mọi người nhìn vào chiếc áo.
 
 ![mẫu may áo thun đồng phục công ty Tài Tài](https://image.prntscr.com/image/OQF1blEbQGSqEQwKUYS4SQ.jpg)
