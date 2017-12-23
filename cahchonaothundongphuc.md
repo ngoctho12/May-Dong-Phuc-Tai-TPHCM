@@ -1,5 +1,5 @@
 # CÁCH CHỌN ÁO THUN ĐỒNG PHỤC
-Đôi khi sự lựa chọn đơn giản nhất có thể là một chút gì đó khó hiểu! Có rất nhiều lựa chọn khi tìm kiếm một chiếc[**áo thun đồng phục**](http://dongphuckimvang.vn/dong-phuc-ao-thun.html) : kiểu dáng thiết kế, phong cách, cá tính, và vải. 
+Đôi khi sự lựa chọn đơn giản nhất có thể là một chút gì đó khó hiểu! Có rất nhiều lựa chọn khi tìm kiếm một chiếc [**áo thun đồng phục**](http://dongphuckimvang.vn/dong-phuc-ao-thun.html) : kiểu dáng thiết kế, phong cách, cá tính, và vải. 
 Một chiếc **áo thun đồng phục** luôn là một lựa chọn an toàn và phù hợp với mọi người. Chúng tôi chắc chắn nó sẽ không bao giờ là lỗi thời. Thế mạnh của **áo thun đồng phục** là đơn giản và linh hoạt.
 
 Bằng cách thay đổi chi tiết, chẳng hạn như độ dài của ống tay, màu sắc (và tất nhiên là bản in hoặc thêu mà bạn chọn tuỳ chỉnh), bạn có thể tạo ra nhiều kiểu dáng để thu hút nhiều người hơn.
