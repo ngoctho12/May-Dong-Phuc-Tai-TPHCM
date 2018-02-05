@@ -1,6 +1,6 @@
 # Quần áo bảo hộ có độ phơi sáng cao 
 
-Bị che khuất bởi những vật cản là nguyên nhân thường gặp thứ hai gây tử vong tại công trường làm việc, vì vậy không thể đánh giá thấp mức độ phản quan, phơi sáng của *quần áo bảo hộ* đối với sự an toàn lao động. Trên thực tế, nó được xếp loại là Thiết bị Bảo vệ cá nhân (PPE) và người sử dụng lao động phải bắt buộc cung cấp quần áo phản quang, phơi sáng, thu hút tầm nhìn cao cho công nhân. Quần áo được làm từ những màu sắc tươi sáng như vàng cam và xanh lá, giúp bạn nổi bật lên từ cảnh nền xung quanh, trong khi các lớp phản quang cung cấp khả năng hiển thị công nhân trong điều kiện ánh sáng yếu.
+Bị che khuất bởi những vật cản là nguyên nhân thường gặp thứ hai gây tử vong tại công trường làm việc, vì vậy không thể đánh giá thấp mức độ phản quan, phơi sáng của *quần áo bảo hộ* đối với sự an toàn lao động. Trên thực tế, nó được xếp loại là Thiết bị Bảo vệ cá nhân ([PPE](https://en.wikipedia.org/wiki/Personal_protective_equipment)) và người sử dụng lao động phải bắt buộc cung cấp quần áo phản quang, phơi sáng, thu hút tầm nhìn cao cho công nhân. Quần áo được làm từ những màu sắc tươi sáng như vàng cam và xanh lá, giúp bạn nổi bật lên từ cảnh nền xung quanh, trong khi các lớp phản quang cung cấp khả năng hiển thị công nhân trong điều kiện ánh sáng yếu.
 
 Các thông số kỹ thuật về độ phơi sáng này được chia thành ba lớp khác nhau để phù hợp nhất với nơi làm việc của bạn. Các lớp đó là:
 
